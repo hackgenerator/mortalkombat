@@ -1,4 +1,4 @@
-<a href="http://prcheats.win/mortalkombatx/img src="https://i.imgur.com/JofLywq.gif"></a>
+<a href="http://prcheats.win/mortalkombatx/"><img src="https://i.imgur.com/JofLywq.gif"></a>
 <h3><a href="http://prcheats.win/mortalkombatx/">Click Here to Hack Mortal kombat X Now</a></h3>
 <h3><a href="http://prcheats.win/mortalkombatx/">Mortal kombat X Hack - unlimited Koins and Souls in under five minutes</a></h3>
 
